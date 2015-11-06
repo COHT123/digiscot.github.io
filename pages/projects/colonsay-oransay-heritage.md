@@ -32,7 +32,7 @@ Project underway with the purchase of our new website: colonsaycaptured.com
 
 With distance support, via email and skype, from Gemma Webster from Aberdeen University we have been reviewing our heritage materials in order to establish our priorities for inclusion on our website. The website itself is currently being customised, after time spent reviewing the Hebridean Connections website on which ours is modelled, to meet the needs we have identified. Once this is completed we will be in a position to begin our training on how to populate the website, using the format developed for us in consultation with Gemma.
 
-
+While awaiting the completion of set up for our new website, and after auditing the needs of the community, the Trust identified a community wide need for basic IT training, last delivered on the island over 12 years ago. We enlisted the help of Community Learning Development, who have now completed a weekend course on the island. Evaluation of this training has identified a need for further training. Each training session was well attended and all attendees were very positive about the classes and almost everyone requested further training. There would definitely be scope to deliver at least one other weekend session to advance the training, but also to offer the original training to those who had missed out first time round. We therefore hope to run another training session before the end of March. Argyll and Bute funded the initial training weekend and we are therefore in a position to pay the next from our award.
 
 ## Evaluation
 
